@@ -1,5 +1,5 @@
 # 🌟 **Sukhdeep Singh**  
-📧 sukhdeepsingh14@student.kpu.ca | 📞 (236)-308-2918 | [🔗 LinkedIn](https://linkedin.com/in/sukhdeepsingh22) | [💻 GitHub](https://github.com/SukhdeepSingh22)  
+📧 sukhdeep.atwork@gmail.com | 📞 (236)-308-2918 | [🔗 LinkedIn](https://linkedin.com/in/sukhdeepsingh22) | [💻 GitHub](https://github.com/SukhdeepSingh22)  
 
 ---
 
